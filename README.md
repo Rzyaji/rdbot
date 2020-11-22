@@ -1,4 +1,4 @@
-# botst4rz
+# botRd
 BOT WHATSAPP HP BINTANG NUR PRADANA
 
 ### Alat dan Bahan
